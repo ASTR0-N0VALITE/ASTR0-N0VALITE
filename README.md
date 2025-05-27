@@ -4,6 +4,9 @@
 
 ***
 
+<p align="center"
+
+  ![](https://64.media.tumblr.com/8f7f0071273d2e11c30296d0c5ae81e3/b98005af2980e008-65/s1280x1920/64d084173bb767421a1e19481f43c0f3b6366786.pnj)
 # ✦ Hello ^_^
 the name was Lucenthex or just . . . call me luis instead ^_^ . . . geheh , mostly my friends and partner calls me that.
 
@@ -28,3 +31,7 @@ I might be that quite shy as well around new people who wanted to be friends w/ 
 trollers , basic dni criteria , above 18+ / below 13+ , some weirdos that is being very weird to me , my enemies that i STRICTLY don't like .
 - do not send cropped pornographic pictures to me, that is disgusting, equals permanently BLOCKED .
 - and look, or listen, if you're approaching me just to annoy me, leave me alone and strictly DNI.
+
+
+# creds
+- cyberstramp3 on tumblr ??? (I THINK????) for the astro
