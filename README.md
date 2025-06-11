@@ -33,7 +33,7 @@ trollers , basic dni criteria , above 18+ / below 13+ , some weirdos that is bei
 - and look, or listen, if you're approaching me just to annoy me, leave me alone and strictly DNI.
 
 # ✦ links !
-- 　　➣　　　https://lucenthex.straw.page
+- https://lucenthex.straw.page
 
 # creds
 - cyberstramp3 on tumblr ??? (I THINK????) for the astro
